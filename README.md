@@ -1,4 +1,4 @@
-# Hello, I'm [Eduardo Julius Rosales! 👋
+# Hello, I'm Eduardo Julius Rosales! 👋
 
 I'm a [Student] of [Gordon College]. Here's a bit more about me:
 
